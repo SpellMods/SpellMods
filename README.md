@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SpellMods
+- 👀 I’m Interested In Modding
+- 🌱 I’m Currently Learning Coding
+- 💞️ I’m Looking To Collaborate On Developing
+- 📫 How To Reach Me Email Is Caseb@Gmail.com
